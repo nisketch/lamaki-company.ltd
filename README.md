@@ -1,0 +1,1 @@
+# lamaki-company.ltd
